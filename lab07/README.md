@@ -8,3 +8,5 @@ https://docs.google.com/forms/d/e/1FAIpQLSepQ_gCECNqfS3GuwENply3HyBL3dUY0N2hhnTp
 https://docs.google.com/forms/d/e/1FAIpQLSf-v3o6eamzipTXuw0oHrTefZinI9cQqdZjOazKwlf9Fm376g/viewform?usp=dialog
 
 *Ngày tạo: 02/10/2026*
+## Bài 2 - Trang giới thiệu bản thân
+https://sites.google.com/student.ctu.edu.vn/gioi-thieu-diem-tran/trang-ch%E1%BB%A7
